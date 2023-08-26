@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @kallilsouza!
-- 📫 You can reach me via email: kallil.souza.santos@gmail.com.
+- 📫 You can reach me via email: eu@kallil.net.br.
 - 🤳 Or you can send me a message on Instagram (follow me, btw): [@kallilsouza](https://instagram.com/kallilsouza)
